@@ -1,4 +1,4 @@
-# ExMC-Github.github.io
+# ExMC-Github
 
 ##我好垃圾
 很多都不会-如Python和JAVA还有C++
