@@ -10,6 +10,6 @@
 
 Follow me please qwq
 
-[My Gitee](https://gitee.com/ExMinecraft158)[My Bilibili](https://space.bilibili.com/229776086)
+[My Gitee](https://gitee.com/ExMinecraft158) | [My Bilibili](https://space.bilibili.com/229776086)
 
 这是个甜菜初中生（大雾
